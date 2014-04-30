@@ -1,1 +1,1 @@
-But what do i put over here? How can I make the sidebar appear?
+But what do i put over here?  [Eat](/eat/)
